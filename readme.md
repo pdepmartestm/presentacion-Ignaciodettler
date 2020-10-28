@@ -1,4 +1,4 @@
-Buenas, mi nombre es Ignacio Dettler, tengo 19 años, mi legajo es: 1685399. Esta es la segunda vez que curso pdep y me gustaria poder terminar de parender lo que no aprendi el año pasado.
+Buenas, mi nombre es Ignacio Dettler, tengo 19 años, mi legajo es: 1685399. Esta es la segunda vez que curso pdep y me gustaria poder terminar de aprender lo que no aprendi el año pasado.
 Me gusta escuchar musica (muchisimo), lamentablemente como vivo en un departamento mis padres no me dejan tener mascotas, pero si tuviera una seria un perro.
 La ultima pelicula que vi y que me gusto fue la de Mad Max: furia en el camino (2015).
 
